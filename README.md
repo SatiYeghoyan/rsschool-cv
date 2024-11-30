@@ -1,1 +1,1 @@
-# rsschool-cv
+https://satiyeghoyan.github.io/rsschool-cv/
